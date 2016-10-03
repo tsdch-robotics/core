@@ -13,3 +13,20 @@
 # 2014-2015: Cascade Effect
 
 # 2015-2016: FIRST RES-Q
+### 2827
+Hannah Stepp  
+Heather Wright  
+Brad Fay  
+Kevin Wright  
+Emily Celeste  
+Heyab Zeresenai  
+Justin Lloyd  
+
+### 3587
+Perry Dickson  
+John Sampson  
+Nicole Van Buren  
+Sanya Raynoe  
+Khamisi Jackson  
+Jefferson Bishop  
+Luke Nicol  
